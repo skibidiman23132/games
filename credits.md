@@ -78,8 +78,7 @@
   ###### *pls dont sue me 🥺*
 
 > # Links
-1. **[Main](https://nintendoboi22.github.io)**
-2. **[Main 2](https://nintendoboi222.github.io)**
+2. **[Main](https://skibidiman23132.github.io)**
   
 > # DMCA
 - **[DMCA, if needed](https://nintendoboi22.github.io/licence-stuff/dmca)**
